@@ -1,0 +1,2 @@
+# Manaque-
+Pessoa humana 
